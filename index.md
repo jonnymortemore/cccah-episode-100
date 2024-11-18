@@ -49,21 +49,21 @@ This is the greatest leap upwards between anticipating and during/retrospective 
 ## Worst Guesses?
 
 ### How many was Jeff off for his worst guess?
-><details><summary>answer</summary>5 off! He guessed 1/2/3 and the score was 3/4/4. This is the worst guess so far.</details>
+><details><summary>Reveal Answer</summary>5 off! He guessed 1/2/3 and the score was 3/4/4. This is the worst guess so far.</details>
 
 ### What was the content?
-><details><summary>answer</summary>Norm Macdonald on Conan 2009 - 2010</details>
+><details><summary>Reveal Answer</summary>Norm Macdonald on Conan 2009 - 2010</details>
 
 ### How many was Chris off for his worst guess?
-><details><summary>answer</summary>3 off! He guessed 4/4/4 and the score was 3/3/3</details>
+><details><summary>Reveal Answer</summary>3 off! He guessed 4/4/4 and the score was 3/3/3</details>
 
 ### What was the content?
-><details><summary>answer</summary>Guardians of the Galaxy (2014)</details>
+><details><summary>Reveal Answer</summary>Guardians of the Galaxy (2014)</details>
 
 ## Season 1 Bonus Questions:
 
 ### What was the oldest piece of Content Pitched in season 1?
-><details><summary>answer</summary>The Last Waltz (1978) pitched by Jeff which Chris scored 2/4/3</details>
+><details><summary>Reveal Answer</summary>The Last Waltz (1978) pitched by Jeff which Chris scored 2/4/3</details>
 <br />
 
 # Season 2
@@ -71,10 +71,10 @@ This is the greatest leap upwards between anticipating and during/retrospective 
 ## Lowest Scored Content?
 
 ### Jeff: 
-><details><summary>answer</summary>Armageddon: Ricky Gervais by Ricky Gervais</details>
+><details><summary>Reveal Answer</summary>Armageddon: Ricky Gervais by Ricky Gervais</details>
 
 #### Score:
-><details><summary>answer</summary>3/2/2</details>
+><details><summary>Reveal Answer</summary>3/2/2</details>
 
 ### Chris: 
 ><details><summary>Reveal Answer</summary>The Social Dilemma (2020) OR Sex and the City S01E01</details>
@@ -113,21 +113,21 @@ This is the greatest leap upwards between anticipating and during/retrospective 
 ## Worst Guesses?
 
 ### How many was Jeff off for his worst guess?
-><details><summary>answer</summary>3 off! Jeff guessed 2/3/4 and the score was 3/4/5. </details>
+><details><summary>Reveal Answer</summary>3 off! Jeff guessed 2/3/4 and the score was 3/4/5. </details>
 
 ### What was the content?
-><details><summary>answer</summary>The One Show: 1st November 2023</details>
+><details><summary>Reveal Answer</summary>The One Show: 1st November 2023</details>
 
 ### How many was Chris off for his worst guess?
-><details><summary>answer</summary>3 off! Chris guessed 3/4/3 and the score was 5/4/4.</details>
+><details><summary>Reveal Answer</summary>3 off! Chris guessed 3/4/3 and the score was 5/4/4.</details>
 
 ### What was the content?
-><details><summary>answer</summary>Futurama S11E05, Jeff's highest scored content of the season!</details>
+><details><summary>Reveal Answer</summary>Futurama S11E05, Jeff's highest scored content of the season!</details>
 
 ## Season 2 Bonus Questions:
 
 ### What was the oldest piece of Content Pitched in season 2?
-><details><summary>answer</summary>Star Trek: The Next Generation S05E25 and Star Trek: Deep Space 9 S04E02 which Chris scored 2/3/3.</details>
+><details><summary>Reveal Answer</summary>Star Trek: The Next Generation S05E25 and Star Trek: Deep Space 9 S04E02 which Chris scored 2/3/3.</details>
 <br />
 
 
@@ -136,10 +136,10 @@ This is the greatest leap upwards between anticipating and during/retrospective 
 ## Lowest Scored Content?
 
 ### Jeff: 
-><details><summary>answer</summary>Sonic Hedgehog (2022)</details>
+><details><summary>Reveal Answer</summary>Sonic Hedgehog (2022)</details>
 
 #### Score:
-><details><summary>answer</summary>1/3/2</details>
+><details><summary>Reveal Answer</summary>1/3/2</details>
 
 ### Chris: 
 ><details><summary>Reveal Answer</summary>Sex and the City: The Finale S06E20 (2004)</details>
@@ -182,18 +182,18 @@ This is the biggest drop in a score from anticipation to during/retrospect score
 ## Worst Guesses?
 
 ### How many was Jeff off for his worst guess?
-><details><summary>answer</summary>3 off!</details>
+><details><summary>Reveal Answer</summary>3 off!</details>
 
 ### How many different guesses was he this number off?!
-><details><summary>answer</summary>Jeff was off by 3 for a total of 7 different guesses! Joe Lycett Vs Sewage, Ghost of the Great Highway by Sun Kil Moon, NYPD Blue S01E01, Sex and the City: The Finale (S06E20), Twin Peaks S01E01 by David Lynch, Discover Your Own Taste With Ezra Klein by Ezra Klein and Fire of Love (2022).</details>
+><details><summary>Reveal Answer</summary>Jeff was off by 3 for a total of 7 different guesses! Joe Lycett Vs Sewage, Ghost of the Great Highway by Sun Kil Moon, NYPD Blue S01E01, Sex and the City: The Finale (S06E20), Twin Peaks S01E01 by David Lynch, Discover Your Own Taste With Ezra Klein by Ezra Klein and Fire of Love (2022).</details>
 
 ### How many was Chris off for his worst guess?
-><details><summary>answer</summary>4!</details>
+><details><summary>Reveal Answer</summary>4!</details>
 
 ### How many different guesses was he this number off?!
-><details><summary>answer</summary>Chris was off by 4 for a total of 2 guesses. Where I’m Meant to Be by George Ezra Collective and Everything I thought I was by Justin Timberlake.</details>
+><details><summary>Reveal Answer</summary>Chris was off by 4 for a total of 2 guesses. Where I’m Meant to Be by George Ezra Collective and Everything I thought I was by Justin Timberlake.</details>
 
 ## Season 3 Bonus Questions:
 
 ### What was the oldest piece of Content Pitched in season 3?
-><details><summary>answer</summary>Let it Be (1970), pitched by Jeff. Chris scored it 4/3/3.</details>
+><details><summary>Reveal Answer</summary>Let it Be (1970), pitched by Jeff. Chris scored it 4/3/3.</details>
