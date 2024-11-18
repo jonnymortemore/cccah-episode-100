@@ -59,7 +59,7 @@ This is the greatest leap upwards between anticipating and during/retrospective 
 ### What was the content?
 ><details><summary>answer</summary>Guardians of the Galaxy (2014)</details>
 
-## Season 1 Bonus Question:
+## Season 1 Bonus Questions:
 
 ### What was the oldest piece of Content Pitched in season 1?
 ><details><summary>answer</summary>The Last Waltz (1978) pitched by Jeff which Chris scored 2/4/3</details>
@@ -123,11 +123,10 @@ This is the greatest leap upwards between anticipating and during/retrospective 
 ### What was the content?
 ><details><summary>answer</summary>Futurama S11E05, Jeff's highest scored content of the season!</details>
 
-## Season 2 Bonus Question:
+## Season 2 Bonus Questions:
 
 ### What was the oldest piece of Content Pitched in season 2?
-><details><summary>answer</summary>Star Trek: The Next Generation S05E25 and Star Trek: Deep Space 9 S04E02 which Chris scored 2/3/3. 
-</details>
+><details><summary>answer</summary>Star Trek: The Next Generation S05E25 and Star Trek: Deep Space 9 S04E02 which Chris scored 2/3/3.</details>
 <br />
 
 
@@ -192,7 +191,7 @@ This is the biggest drop in a score from anticipation to during/retrospect score
 ### How many different guesses was he this number off?!
 ><details><summary>answer</summary>Chris was off by 4 for a total of 2 guesses. Where I’m Meant to Be by George Ezra Collective and Everything I thought I was by Justin Timberlake.</details>
 
-## Season 3 Bonus Question:
+## Season 3 Bonus Questions:
 
 ### What was the oldest piece of Content Pitched in season 3?
 ><details><summary>answer</summary>Let it Be (1970), pitched by Jeff. Chris scored it 4/3/3.</details>
