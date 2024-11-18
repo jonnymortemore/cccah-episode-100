@@ -195,5 +195,5 @@ This is the biggest drop in a score from anticipation to during/retrospect score
 
 ## Season 3 Bonus Questions:
 
-### What was the oldest piece of Content Pitched in season 3?
+### What was the oldest piece of content pitched in season 3?
 ><details><summary>Reveal Answer</summary>Let it Be (1970), pitched by Jeff. Chris scored it 4/3/3.</details>
