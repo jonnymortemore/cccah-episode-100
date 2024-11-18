@@ -1,10 +1,3 @@
----
-title: Episode 100 Questions and Answers
-permalink: /
-layout: default
----
-
-
 # Episode 100 Questions and Answers
 
 ### Season 1
