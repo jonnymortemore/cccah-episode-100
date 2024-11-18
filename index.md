@@ -184,13 +184,13 @@ This is the biggest drop in a score from anticipation to during/retrospect score
 ><details><summary>answer</summary>3 off!</details>
 
 ### How many different guesses was he this number off?!
-><details><summary>answer</summary>Jeff was off by 3 for a total of 7 different guesses! Joe Lycett Vs Sewage, Ghost of the Great Highway by Sun Kil Moon, NYPD Blue S01E01, Sex and the City: The Finale (S06E20), Twin Peaks S01E01 by David Lynch, Discover Your Own Taste With Ezra Klein by Ezra Klein and Fire of Love (2022)</details>
+><details><summary>answer</summary>Jeff was off by 3 for a total of 7 different guesses! Joe Lycett Vs Sewage, Ghost of the Great Highway by Sun Kil Moon, NYPD Blue S01E01, Sex and the City: The Finale (S06E20), Twin Peaks S01E01 by David Lynch, Discover Your Own Taste With Ezra Klein by Ezra Klein and Fire of Love (2022).</details>
 
 ### How many was Chris off for his worst guess?
-><details><summary>answer</summary>4! Chris guessed 2/2/3 but Jeff scored 3/4/4</details>
+><details><summary>answer</summary>4!</details>
 
-### What was the content?
-><details><summary>answer</summary>Where I’m Meant to Be by George Ezra Collective (2022)</details>
+### How many different guesses was he this number off?!
+><details><summary>answer</summary>Chris was off by 4 for a total of 2 guesses. Where I’m Meant to Be by George Ezra Collective and Everything I thought I was by Justin Timberlake.</details>
 
 ## Season 3 Bonus Question:
 
