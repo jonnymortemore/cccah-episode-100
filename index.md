@@ -31,6 +31,7 @@
 ><details><summary>Reveal Answer</summary>4/4/4</details>
 
 ## Most Surprising Content?
+>[!TIP]
 This is the greatest leap upwards between anticipating and during/retrospective scores
 
 ###  Jeff:
@@ -169,6 +170,7 @@ This is the greatest leap upwards between anticipating and during/retrospective 
 ><details><summary>Reveal Answer</summary>2/4/4</details>
 
 ## Most Disappointing?
+>[!TIP]
 This is the biggest drop in a score from anticipation to during/retrospect scores.
 
 ###  Jeff:
