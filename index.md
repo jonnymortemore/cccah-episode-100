@@ -48,7 +48,7 @@ This is the greatest leap upwards between anticipating and during/retrospective 
 ## Worst Guesses?
 
 ### How many was Jeff off for his worst guess?
-><details><summary>answer</summary>5 off! He guessed 1/2/3 and the score was 3/4/4</details>
+><details><summary>answer</summary>5 off! He guessed 1/2/3 and the score was 3/4/4. This is the worst guess so far.</details>
 
 ### What was the content?
 ><details><summary>answer</summary>Norm Macdonald on Conan 2009 - 2010</details>
