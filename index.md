@@ -197,3 +197,80 @@ This is the biggest drop in a score from anticipation to during/retrospect score
 
 ### What was the oldest piece of content pitched in season 3?
 ><details><summary>Reveal Answer</summary>Let it Be (1970), pitched by Jeff. Chris scored it 4/3/3.</details>
+
+
+## Season 4
+
+## Lowest Scored Content (so far)?
+
+### Jeff: 
+><details><summary>Reveal Answer</summary>Silver Side Up by Nickelback</details>
+
+#### Score:
+><details><summary>Reveal Answer</summary>2/2/2. This is the lowest overall score!</details>
+
+### Chris: 
+><details><summary>Reveal Answer</summary>Taylor Swift: The Eras Tour by Taylor Swift</details>
+
+#### Score:
+><details><summary>Reveal Answer</summary>3/2/3</details>
+
+## Highest Rated Content?
+
+### Jeff (There are two with the same score - as it was so recent has to guess both!):
+><details><summary>Reveal Answer</summary>Bando Stone & the New World by Childish Gambino AND Chicken Shop Date With Andrew Garfield</details>
+
+#### Score:
+><details><summary>Reveal Answer</summary>4/5/4</details>
+
+### Chris
+><details><summary>Reveal Answer</summary>Shadow Kingdom by Bob Dylan</details>
+
+#### Score:
+><details><summary>Reveal Answer</summary>3/5/5</details>
+
+## Surprising and Disappointing
+
+### Not included these as they were either not that interesting (or from like last week).
+
+## Worst Guesses?
+
+### How many was Jeff off for his worst guess?
+><details><summary>Reveal Answer</summary>3 off!</details>
+
+### What was the content? (There are two - guess both!)
+><details><summary>Reveal Answer</summary>The Fire Within: A Requiem for Katia and Maurice Krafft AND I’m Thinking of Ending Things</details>
+
+### How many was Chris off for his worst guess?
+><details><summary>Reveal Answer</summary>4 off!</details>
+
+### What was the content?
+><details><summary>Reveal Answer</summary>Early Daze by Neil Young</details>
+
+## Season 4 Bonus Questions:
+
+### Who's current winning the season? (As of Episode 16)
+><details><summary>Reveal Answer</summary>Jeff with 6 wins to Chris' 5.</details>
+
+## Bonus Overall Questions:
+
+### Who's winning overall?!
+><details><summary>Reveal Answer</summary>Chris! With 35 wins to Jeff's 34. Close!</details>
+
+### How many draws have there been overall?
+><details><summary>Reveal Answer</summary>20 draws!</details>
+
+### How many words in the longest episode name in the podcast history?
+><details><summary>Reveal Answer</summary>30 words! From episode S01E13. The thing, if you're trying to observe something, the whole nature of that changes because it's now being observed so it knows it's being observed, whatever you're trying to observe</details>
+
+### Longest Podcast episode?
+><details><summary>Reveal Answer</summary>1 hour 50 minutes. S00E04 RETROSPECTIVE CLUB: Season 1 State of the Pod</details>
+
+### Date of the first ever podcast?
+><details><summary>Reveal Answer</summary>05/01/23. S01E01: Finding our feet.</details>
+
+### Total Duration of all podcasts combined?
+><details><summary>Reveal Answer</summary>4 days 6 hours 55 minutes 37 seconds.</details>
+
+### How many times has Jeff said "shout out" on the pod?
+><details><summary>Reveal Answer</summary>1A million probably.</details>
