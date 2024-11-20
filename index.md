@@ -273,4 +273,4 @@ This is the biggest drop in a score from anticipation to during/retrospect score
 ><details><summary>Reveal Answer</summary>4 days 6 hours 55 minutes 37 seconds.</details>
 
 ### How many times has Jeff said "shout out" on the pod?
-><details><summary>Reveal Answer</summary>1A million probably.</details>
+><details><summary>Reveal Answer</summary>A million probably.</details>
